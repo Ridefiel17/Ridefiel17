@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Ridefiel17
-- 👀 I’m interested in videohames
+- 👀 I’m interested in videogames
 - 🌱 I’m currently learning solar energy
 - 💞️ I’m looking to collaborate on new proyects with wow server
 
